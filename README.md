@@ -2,7 +2,7 @@
 - even tho i can't code i am interested in coding.
 - I’m interested in Ai, Linux and Jailbreaking
 - I’m currently learning English, Russian and Python
-- How to reach me @guellenmade only on discord
+- Reach me only on discord (guellenmade)
 - Pronouns: i am a male so he/him
 - Fun fact: i am comming from Switzerland
 
