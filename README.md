@@ -1,5 +1,5 @@
 - Hi, my name is Mailo (@guellenmade)
-- even tho i can't code i am interested in coding.
+- Even though i can't code i am interested in coding.
 - I’m interested in Ai, Linux and Jailbreaking
 - I’m currently learning English, Russian and Python
 - Reach me
