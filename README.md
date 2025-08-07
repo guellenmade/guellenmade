@@ -2,7 +2,7 @@
 - Even though i can't code i am interested in coding.
 - I’m interested in Ai, Linux and Jailbreaking
 - I’m currently learning English, Russian and Python
-- Reach me
+- Reach me <br>
   <a href="https://guellenmade.github.io/madensite/">Website (very ugly)</a>
   <br>
   on Discord (guellenmade)
