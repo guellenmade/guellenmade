@@ -11,7 +11,6 @@
   <br>
   <a href="https://signal.me/#eu/3v8xZveOj8CKsH2HvjB1JxTS00KjJyeSIKA8uy7Uop66Ydaeh5BM2LiPE3fXiMid">Signal</a> <br>
   on Discord (guellenmade) <br>
-  on Session: (0553256ee0f2ed6562410a5fac7a0788232e71c91e52be2b570ceeb2e6bf99ca07)
 - Pronouns: i am a male so he/him
 - Fun fact: i am comming from Switzerland
 
